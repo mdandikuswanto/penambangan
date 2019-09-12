@@ -1,2 +1,0 @@
-# penambangan
-penambangan
